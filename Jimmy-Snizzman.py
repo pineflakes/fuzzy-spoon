@@ -1,1 +1,1 @@
-We love Jimmy!!
+We love Jimmy!
